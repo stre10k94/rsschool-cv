@@ -1,0 +1,1 @@
+https://stre10k94.github.io/rsschool-cv/cv
